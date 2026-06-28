@@ -1,2 +1,2 @@
 thank you sir mam for giving me this oppertunity its my pleasere to be here.
-my self ravi udhav pawar,i have complted my bacholers degree in computer science from mgms college of cs and it nanded,during my academic year i have learned python java c and c++ languages ans also created a voice assistant project using python languagess
+my self ravi udhav pawar,i have complted my bacholers degree in computer science from mgms college of cs and it nanded,during my academic year i have learned python java c and c++ languages ans also created a voice assistant project using pythonlang.
